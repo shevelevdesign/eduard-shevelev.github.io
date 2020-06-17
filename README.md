@@ -1,2 +1,0 @@
-# eduard-shevelev
-Мой сайт
